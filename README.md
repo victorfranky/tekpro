@@ -9,3 +9,5 @@ Nama Anggota Kelompok 10 :
 4. Victor Franky - 2031064
 
 Tahun : 2020/2021
+
+Link Video UAS Kami : https://youtu.be/-ciwErPvvU4
